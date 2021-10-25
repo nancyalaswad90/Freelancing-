@@ -21,8 +21,6 @@ We are delighted to inform you that you have been selected from over 2000 applic
 
 
 
-
-
 You are about to embark on a unique journey to land your first (or more!) paid freelancing gig. Throughout this 3 month program, the aim is for you to land your first paid gig in tech. This will require commitment, diligence, and submitting high quality proposals. But don’t worry - we know you can do it - that’s why we chose you!
 
 
